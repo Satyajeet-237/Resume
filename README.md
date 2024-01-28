@@ -2,4 +2,4 @@
 
 This is a personal website to showcase my educational background
 
-Thank you for watching!
+Thank you for visiting !
